@@ -1,1 +1,1 @@
-Advising petroleum company on how to meet the demands of their customers
+Advising a petroleum company on meeting customer demands involves a combination of improving existing processes, adopting new technologies, and responding to evolving market trends.
